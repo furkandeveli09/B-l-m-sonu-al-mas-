@@ -1,1 +1,1 @@
-# B-l-m-sonu-al-mas-
+Bolum sonu calismasi
